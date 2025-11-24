@@ -68,4 +68,4 @@ More projects coming soon…
 
 📧 Email: gurpartapmaan543@gmail.com  
 📍 Surrey, BC  
-🔗 LinkedIn: *Add your link here*  
+🔗 LinkedIn: www.linkedin.com/in/gurpartap-singh-1008852a8 
